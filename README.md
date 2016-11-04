@@ -1,6 +1,7 @@
 # miami-2016
 organizing a miami 2016 trip
 
+PNRs and such are deliberately ommited, for obvious reasons.
 
 ## Plan outline 
 
