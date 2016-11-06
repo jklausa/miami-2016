@@ -33,13 +33,14 @@ This where our parts briefly diverge.
 Reunification:
 
 * 🚗 Avis, Mustang Convertible
-* 🏠 ????????? - to book.
+* 🏠 [Oceanside Hotel](https://www.booking.com/hotel/us/oceanside-miami-beach.en-gb.html?aid=376364;sid=221d211e95cc646dfbc342fa6b3c80eb) - 6084 Collins Avenue, Miami Beach (Florida), Fl 33140
 
 ____
 
 ### 20 Nov
 
 * fucking around Miami, sleeping of jetlag, general debauchery.
+* 🏠 [Oceanside Hotel](https://www.booking.com/hotel/us/oceanside-miami-beach.en-gb.html?aid=376364;sid=221d211e95cc646dfbc342fa6b3c80eb) - 6084 Collins Avenue, Miami Beach (Florida), Fl 33140
 
 ____
 
@@ -48,7 +49,7 @@ ____
 * 🚗 0800 - 1300 - drive to [Key West]. TBD if we go the whole way, or stop halfway there.
 * 🎉 1300 - 2000 - fucking around around Key West. Apparently nothing interesting there. 4sq some restaurants?
 * 🚗 2000 - 0100 - drive back to Miami.
-* 🏠 ???????????? - to book.
+* 🏠 [Oceanside Hotel](https://www.booking.com/hotel/us/oceanside-miami-beach.en-gb.html?aid=376364;sid=221d211e95cc646dfbc342fa6b3c80eb) - 6084 Collins Avenue, Miami Beach (Florida), Fl 33140
 
 ____
 
