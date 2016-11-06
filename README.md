@@ -11,7 +11,7 @@ All times local.
 
 * ✈️ LH181 TXL-FRA 0945 - 1055
 * ✈️ LH806 FRA-ARN 1305 - 1510
-* 🏠 Clarion Hotel Arlanda Airport
+* 🏠 [Clarion Hotel Arlanda Airport](https://encrypted.google.com/maps/place/Clarion+Hotel+Arlanda+Airport/@59.649009,17.930791,15z/data=!4m2!3m1!1s0x0:0x6ae4051536ff715a?hl=en&sa=X&ved=0ahUKEwieiqHeqpXQAhWBbhQKHZEmBMEQ_BIIowEwCg)
 
 ____
 
