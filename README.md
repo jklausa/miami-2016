@@ -67,21 +67,21 @@ ____
 
 * ❓???? - ???? - wat
 * 🚗 2000 - 0100 - drive to Miami.
-* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en)
+* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en) - 325 S Biscayne Blvd, Miami, FL 33131, USA
 
 ____
 
 ### 24 Nov
 
 * ❓???? - ???? - wat
-* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en)
+* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en) - 325 S Biscayne Blvd, Miami, FL 33131, USA
 
 ____
 
 ### 25 Nov
 
 * ❓???? - ???? - wat
-* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en)
+* 🏠 Airbnb next to the [InterContinental Miami](https://www.google.com/maps/place/InterContinental+Miami/@25.7724247,-80.187636,17z/data=!3m1!4b1!4m5!3m4!1s0x88d9b4276878ddbb:0x5bb1fcd840d2173c!8m2!3d25.7724247!4d-80.1854473?hl=en) - 325 S Biscayne Blvd, Miami, FL 33131, USA
 
 ____
 
