@@ -3,6 +3,18 @@ organizing a miami 2016 trip
 
 PNRs and such are deliberately ommited, for obvious reasons.
 
+## Costs 
+```
+* Arlanda Hotel - SEK 1080
+* Miami Hotel   - USD  420 
+* Miami Airbnb  - EUR  514
+
+Total: ~108 EUR + ~380 EUR + 514 EUR  = ~1002 EUR
+```
+
+Per person: ~334 EUR.
+
+
 ## Plan outline 
 
 All times local.
