@@ -6,13 +6,14 @@ PNRs and such are deliberately ommited, for obvious reasons.
 ## Costs 
 ```
 * Arlanda Hotel - SEK 1080
-* Miami Hotel   - USD  420 
+* Miami Hotel   - USD  420
+* Orlando Hotel - EUR   90
 * Miami Airbnb  - EUR  514
 
-Total: ~108 EUR + ~380 EUR + 514 EUR  = ~1002 EUR
+Total: ~108 EUR + ~380 EUR + 514 EUR + 90 EUR   = ~1092 EUR
 ```
 
-Per person: ~334 EUR.
+Per person: ~364 EUR.
 
 
 ## Plan outline 
@@ -71,7 +72,7 @@ ____
 * 🎉 1300 - 1900 - [YAY SPACE]! 
 * 🚗 1900 - 2000 - drive to [Orlando].
 * 🎉 2000 - ???? - tearing up the dancefloors
-* 🏠 ???????????? - to book.
+* 🏠 [Crowne Plaza Orlando - Downtown](https://www.google.com/maps/place/Crowne+Plaza+Orlando-Downtown/@28.5522189,-81.3858636,17z/data=!3m1!4b1!4m5!3m4!1s0x88e77af7de01489b:0x2f383b31711883a5!8m2!3d28.5522189!4d-81.3836749?hl=en) - 304 W Colonial Drive, Orlando, FL 32801
 
 ____
 
